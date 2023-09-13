@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Abdelrhman-yasser98
 - 👀 I’m interested in frontend developing
-- 🌱 I’m currently learning java script
+- 🌱 I’m currently available to hire
 - 📫 How to reach me by Whatsapp on (01030766996) or Gmail on (abdelrhman.yasser.elashoh@gmail.com)
 - 
 
